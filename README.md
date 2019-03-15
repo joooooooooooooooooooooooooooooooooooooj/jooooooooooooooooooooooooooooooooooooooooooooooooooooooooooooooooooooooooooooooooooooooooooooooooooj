@@ -1,5 +1,5 @@
 # jooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooo
 ### joooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooj
-<br>
+
 te agarro pela cabeça assim pela cabeça te dou um golpe pela cabeça assim e te jooj
-![jooj](https://i.ytimg.com/vi/aXyTKO83Nh0/maxresdefault.jpg)
+![jooj](jooj.jpg)
